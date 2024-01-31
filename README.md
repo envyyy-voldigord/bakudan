@@ -1,0 +1,1 @@
+khusus orang awam kang 
